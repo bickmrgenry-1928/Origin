@@ -235,4 +235,4 @@ EA App is the full free version with all features and updates included, ensuring
 Get started today and unlock endless gaming possibilities with EA App! Download now for free and join millions of gamers enjoying their favorite titles.
 
 ---
-**Last updated:** 2026-10-14 01:40:07 UTC
+**Last updated:** 2026-10-14 07:13:31 UTC
